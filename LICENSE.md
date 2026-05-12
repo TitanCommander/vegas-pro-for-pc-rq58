@@ -1,4 +1,4 @@
-# 
+# rare Vegas Pro for PC | Vegas Pro for Windows Addon | color-grading + audio-sync is the best Vegas Pro for PC | Vegas Pro for Windows addon, featuring color-grading and
 
 
 
